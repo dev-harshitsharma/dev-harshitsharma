@@ -5,7 +5,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/dev-harshitsharma](https://github.com/dev-harshitsharma)
 
-- 📫 How to reach me **1912harshit@gmail.com**
+- 📫 How to reach me **1912harshit@gmail.com** , **Linkedin** - **www.linkedin.com/in/harshitsharma1912**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
